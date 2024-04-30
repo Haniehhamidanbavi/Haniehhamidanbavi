@@ -2,7 +2,7 @@
 - 👀 I’m interested in Python , ML 
 - 🌱 I’m currently second year student of Data Analysis ( computer science) 
 - 💞️ I’m looking to take Intership 
-- 📫 How to reach me on linked in , https://www.linkedin.com/in/hanieh-hamidan-bavi-134992227/
+- 📫 How to reach me on linked , https://www.linkedin.com/in/hanieh-hamidan-bavi-134992227/
 - 😄 Pronouns: Hanieh 
 - ⚡ Fun fact: im a Yoga coach 😉 also Race 😁 
 
